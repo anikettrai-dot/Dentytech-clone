@@ -1,4 +1,1 @@
-﻿# Dentytech-clone
-# Dentytech-clone
-# Dentytech-clone
 
